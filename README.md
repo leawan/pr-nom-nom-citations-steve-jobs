@@ -10,3 +10,4 @@ Citation 3 : L'innovation, c'est une situation qu'on choisit parce qu'on a une p
 
 Citation 4 : Souvent, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous le leur montriez.
 
+Citation 5 : En moins d'une semaine, nous sommes devenus le plus grand distributeur de musique au monde.
